@@ -9,7 +9,8 @@
 
 ***
 
-![time-music-illustration-musical-clock-as-symbol-76253773](https://user-images.githubusercontent.com/56325539/191562661-b574b6a0-1bb1-4872-9d26-46579a531903.jpg)
+![DALL·E 2022-09-21 10 41 06 - Music Tempo Detective, music, music notes, detective, music tempo, computer art, bright, colorful, oil colors](https://user-images.githubusercontent.com/56325539/191573922-38c0ffae-6432-407e-b994-60458a03b038.png)
+
 
 ***
 
